@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Vedanti More
+- 👀 I’m interested in interior design
+- 🌱 Currently completed education from vishwakarma university, pune
+- 💞️ I’m looking to an internship and job experience
+- 📫 How to reach me - mvedu06@gmail.com
